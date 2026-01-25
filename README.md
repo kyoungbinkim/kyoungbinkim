@@ -12,7 +12,7 @@
 </br>
 
 
-#  [💻 PROFILE 🔗](https://kyoungbinkim.github.io/profileweb/) 
+#  [💻 PROFILE  ](https://kyoungbinkim.github.io/profileweb/) 
 
 </br>
 </br>
